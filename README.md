@@ -27,7 +27,7 @@ Ce portfolio met en avant mes réalisations à travers une galerie d’images, u
 Thomas Roland
 
 ## Contact
-- Email : thomas.roland@email.com
-- [LinkedIn](https://www.linkedin.com/in/thomas-roland)
+- Email : thomasroland1233@gmail.com
+- [LinkedIn](https://www.linkedin.com/in/thomas-roland-9996032b6/)
 
 N’hésitez pas à me contacter pour toute collaboration ou question !
